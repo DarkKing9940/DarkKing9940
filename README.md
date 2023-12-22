@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Darkking_9940
-- 👀 I’m interested in gaming, studying, and most sleeping
-- 💞️ I’m looking to collaborate on github new here but wanna learn better
+- 👀 I’m interested in gaming, studying, and most of the time sleeping
+- 💞️ I’m looking to collaborate on github and I am new here but wanna learn something better.
 - 📫 Reach me in discord my Discord Username: awm_4567
